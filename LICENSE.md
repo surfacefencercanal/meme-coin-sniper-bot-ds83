@@ -1,4 +1,4 @@
-# 
+# smart Liquidity Bot for meme coin sniper bot | front-running & arbitrage-opportunities is the best meme coin sniper bot, featuring front-running and arbitrage-opportunities. Fast,
 
 
 
